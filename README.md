@@ -5,4 +5,4 @@ https://fivefrance.fr/topic/48/release-loadingscreen-gta-v-1-0
 
 Youtube : https://www.youtube.com/channel/UC7cOssWHSyWgxnVZ3Q-2iIQ
 
-Discord : https://discord.gg/b6aB5wS
+Discord : https://discord.gg/QW4TDJP
